@@ -1,0 +1,1 @@
+# Analisis-de-vibraciones-estructurales-
